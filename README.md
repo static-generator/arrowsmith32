@@ -1,2 +1,2 @@
 # Arrowsmith32
-CN 32 **Zoe** *Rannyel* T. Retubio
+CN 32 **Zoe** Rannyel T. Retubio
