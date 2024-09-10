@@ -4,4 +4,4 @@ CN 32 **Zoe** Rannyel T. Retubio
 [TikTok] (https://www.tiktok.com/en/)
 [Messenger] (https://www.messenger.com/)
 
-[Enhypen] (https://www.musicmundial.com/en/wp-content/uploads/2024/02/ENHYPEN-reveal-the-inspiration-behind-their-cover-of-BTS-I-NEED-U.jpg)
+[Enhypen] (https://static.promediateknologi.id/crop/0x0:0x0/750x500/webp/photo/p1/916/2024/07/12/FotoJet-3434989618.jpg)
